@@ -3,9 +3,32 @@ The repository fro all the morning thoughts in my mind
 
 ### Be Limitless
 - [] Write every morning 
-- [] Morning Cardio Exercise
+- [] Morning Cardio Exercise --> i have felt it by just doing morinig run i was able to feel the immense energy all day long.
 - [] One tasks completed --> clean something -->then again complete something and again do some tasks --> clean and clean as much as you can clean
 - [] Every Skill you learn make you more successfull.
+- [] Affirmations and belief --> achive your goals make your belief a reality.
+- [] Yoga and meditation --> to calm your monkey mind
+- [] Sleep at same time --> so that I can have the same energy every single day.
+
+
+#### 29/08/2020
+* Today is the day of enlightment for me :fire: since one of my friend name vikas told me about his friend savan who has changed 
+  his life just by doing the basic things and frankly speaking I knew all of those things but still i find it hard to achieve my goals
+  live the life of my dreams so the question is why this is happening.
+  
+* First I will list the things that matters a most
+  1. Belief --> affirmations --> achive some goals using those affirmations --> it will improve your belief
+  2. Yoga --> yoga contains everything such as meditation or physical or hath yoga --> this will help me control
+            my monked mind.
+   
+   
+* So how I am planning to take down things in my life the way I am planning is i always wanted to be a software enginner 
+and an elite performing person in sports 
+
+* For the software developer I will remind myself every single day that I have become a software developer and imagine the life of software developer
+* I have started believing myself now and My end goal is now mid of october i will have my OCP certification.
+* for the masturabation and porn addiction I have decided i will switch off my phone every single day at 9:30 and then read and sleep.
+
 
 
 
