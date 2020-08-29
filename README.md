@@ -2,12 +2,12 @@
 The repository fro all the morning thoughts in my mind
 
 ### Be Limitless
-- [] Write every morning 
-- [] Morning Cardio Exercise --> i have felt it by just doing morinig run i was able to feel the immense energy all day long.
+- [] Write every morning :zap: --> it really helped me in calming my monkey mind
+- [] Morning Cardio Exercise :boom:--> i have felt it by just doing morinig run i was able to feel the immense energy all day long.
 - [] One tasks completed --> clean something -->then again complete something and again do some tasks --> clean and clean as much as you can clean
 - [] Every Skill you learn make you more successfull.
 - [] Affirmations and belief --> achive your goals make your belief a reality.
-- [] Yoga and meditation --> to calm your monkey mind
+- [] Yoga and meditation :pray: --> to calm your monkey mind
 - [] Sleep at same time --> so that I can have the same energy every single day.
 
 
