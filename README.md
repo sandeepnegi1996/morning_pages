@@ -8,6 +8,8 @@ The repository fro all the morning thoughts in my mind
 - [] Finish Inner Enginnering 
 - [] Finish OCP SE 11 Book
 - [] Seven habits of highly Effective People finish
+- [] Knowledge sharing session for the automation
+- [] knowledge sharing session for the java OCP certification clearing
 
 
 ### Be Limitless
