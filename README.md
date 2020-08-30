@@ -1,6 +1,12 @@
 # morning_pages
 The repository fro all the morning thoughts in my mind
 
+### Goals
+- [] OCP SE 11 :1: Certified --(I can imagine that I have accomplished that)
+- [] Better Developer
+- [] Gift Laptop to Sis
+
+
 ### Be Limitless
 - [] Write every morning :zap: --> it really helped me in calming my monkey mind
 - [] Morning Cardio Exercise :boom:--> i have felt it by just doing morinig run i was able to feel the immense energy all day long.
@@ -9,6 +15,13 @@ The repository fro all the morning thoughts in my mind
 - [] Affirmations and belief --> achive your goals make your belief a reality.
 - [] Yoga and meditation :pray: --> to calm your monkey mind
 - [] Sleep at same time --> so that I can have the same energy every single day.
+
+
+#### 30/08/2020
+* Today I don't know how but I woke up on time with a good amount of energy and I have finished my morning run and yoga 
+  It felt really amazing since this is one of my core habits and This is the very first thing that i will do from now every f**king morning**
+* Next thing I have thought of gifting one laptop to my Sistem so that i will be helpful for her to enhance her productivity.
+
 
 
 #### 29/08/2020
