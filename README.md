@@ -5,6 +5,9 @@ The repository fro all the morning thoughts in my mind
 - [] OCP SE 11 :1: Certified --(I can imagine that I have accomplished that)
 - [] Better Developer
 - [] Gift Laptop to Sis
+- [] Finish Inner Enginnering 
+- [] Finish OCP SE 11 Book
+- [] Seven habits of highly Effective People finish
 
 
 ### Be Limitless
