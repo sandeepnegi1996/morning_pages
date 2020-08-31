@@ -20,7 +20,13 @@ The repository fro all the morning thoughts in my mind
 - [] Affirmations and belief --> achive your goals make your belief a reality.
 - [] Yoga and meditation :pray: --> to calm your monkey mind
 - [] Sleep at same time --> so that I can have the same energy every single day.
+- [] **What ever you do, do it the way that it is the last thing you will do** :boom: .
 
+
+#### 31/08/2020
+* Today will be a great day in the morning i went for a run and right now I am feeling great, I will try to sleep on time 
+  and work as efficiently.
+* Today I will fix the issues in the testing framework and then I will do the Testing after lunch.
 
 #### 30/08/2020
 * Today I don't know how but I woke up on time with a good amount of energy and I have finished my morning run and yoga 
