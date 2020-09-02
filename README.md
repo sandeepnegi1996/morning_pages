@@ -23,6 +23,10 @@ The repository fro all the morning thoughts in my mind
 - [] **What ever you do, do it the way that it is the last thing you will do** :boom: .
 
 
+#### 02/09/2020
+* Done with demo the demo wasn't that much good so from now on I am planning to record the session first then only present the same session.
+* I want to write everything on my blog.
+
 #### 31/08/2020
 * Today will be a great day in the morning i went for a run and right now I am feeling great, I will try to sleep on time 
   and work as efficiently.
